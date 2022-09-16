@@ -1,4 +1,4 @@
-### Hii how you?
+### Hii how are you?
 I'm Izadora I'm 17
 -Estudande do Sesi
 <!--
