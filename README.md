@@ -1,6 +1,6 @@
 ### Hii how are you?
-I'm Izadora I'm 17
--Estudande do Sesi
+I'm Izadora I'm 17🦋
+-Estudande do Sesi 🎓
 <!--
 **Zaboroskinha/Zaboroskinha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
